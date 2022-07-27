@@ -1,0 +1,1 @@
+# peensamentocomputacinal1c
